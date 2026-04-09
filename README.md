@@ -1,1 +1,3 @@
 # exercicio-historia
+
+Na Escócia medieval, Brianna trabalha na pequena fazenda de sua família e enfrenta dificuldades após um inverno rigoroso que deixou a aldeia à beira da fome. Quando surge a oportunidade de levar mantimentos até outra vila em troca de ajuda, ela decide assumir a responsabilidade.
